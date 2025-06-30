@@ -45,7 +45,7 @@
 ## 🤝 Connect with Me
 
 - 🧑‍💼 [LinkedIn](https://www.linkedin.com/in/simran-singh-jatana-3277b2202)
-- 📧 Email: simranjatana02@gmail.com
+- 📧 Email: simranjatana92@gmail.com
 
 ---
 
